@@ -7,4 +7,7 @@
 | [Sitha Mage riduna](https://youtu.be/L2VGDuvwLXA)-Damith Asanka | [Apa hamuweema wen weema](https://youtu.be/KyAVb7MPx2I)-Namal Udugama |
 | [Aradei wasthu](https://www.youtube.com/watch?v=CL-Tz5yQ5SQ)-Dimanka Wellala | [Wikasitha Adara Prarthana](https://www.youtube.com/watch?v=fP10z3F2ah8)-Kasun Kalhara |
 | [Pin madida danne na](https://www.youtube.com/watch?v=MvPtX-4-Nns)-Samith Sirimanna| [Ananthayata yana para dige](https://www.youtube.com/watch?v=hOzj9ZmX8XA)-Kasun kalhara |
-| [Pasal Bime Hamuwu](https://www.youtube.com/watch?v=w2mPzfbLTvw)-Ajith Muthukumarana| [Wassanayata Atha Wanala](https://www.youtube.com/watch?v=8aCJlTqPsHM)-Umara Singhawansha |[Miya Yanna Sudanam](https://www.youtube.com/watch?v=yA2P3FAoiUI)-Thushara Joshap |
+| [Pasal Bime Hamuwu](https://www.youtube.com/watch?v=w2mPzfbLTvw)-Ajith Muthukumarana| [Wassanayata Atha Wanala](https://www.youtube.com/watch?v=8aCJlTqPsHM)-Umara Singhawansha |
+| [Miya Yanna Sudanam](https://www.youtube.com/watch?v=yA2P3FAoiUI)-Thushara Joshap |
+[Wes Theme 
+Song](https://www.youtube.com/watch?v=9qPZXdsvI48)-Mihidu Ariyarathne |
