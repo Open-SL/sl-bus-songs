@@ -12,3 +12,5 @@
 | [Mage Duppath As Deka](https://www.youtube.com/watch?v=22yH9sTLFLg)-Chamika Sirimanna |[Perawadanak](https://www.youtube.com/watch?v=jJmAyoJ-LOY)-Sanuka Wickramasinghe |
 | [Dakune Pin](https://www.youtube.com/watch?v=BsCnUzbXVxM)-Chamara Weerasinghe |[Kavikariye](https://www.youtube.com/watch?v=cQlcRxFkkR4)-Bathiya N Santhush |
 | [Bageta Salun Doren](https://www.youtube.com/watch?v=aZnZzgMFOEw)-Damith Asanka |[Thaniwee Sitinnai Ma](https://www.youtube.com/watch?v=dnslaxgpE0w)-Milton Mallawarachchi |
+| [Sthuthi](https://www.youtube.com/watch?v=qiSZUyZUiyo)-Samith Sirimanna | [Deviyange Bare](https://www.youtube.com/watch?v=-Yj1At289rw)-Drill Team |
+
