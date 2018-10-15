@@ -16,3 +16,4 @@
 | [Awrudu hatharak](https://www.youtube.com/watch?v=UT-z04jfMg4)-Kingsley Peiris | [Poddiye](https://www.youtube.com/watch?v=doHzexvrJFc)- Sadara Bandara |
 | [Pethi Giligi Giya](https://www.youtube.com/watch?v=D-3Q0-ZibU4)-Ajith Muthukumarana| [Arambumama Kandulak Wela](https://www.youtube.com/watch?v=aNEX3fopDzU)-Kasun Kalhara |
 | [Adaraya Wenuwen](https://www.youtube.com/watch?v=-bimqNc3iW4)-Ajith Muthukumarana | [Soya Awa](https://www.youtube.com/watch?v=ixnjDzxjey0)-Ridma Weerawardena |
+| [Man Pathanawa](https://www.youtube.com/watch?v=cup44QvubSs)-Ashan Fernando | [Ai Mama Adare](https://www.youtube.com/watch?v=xjEV8EgLfLY)-Piyath Rajapakse |
