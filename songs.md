@@ -20,3 +20,5 @@
 | [Man Pathanawa](https://www.youtube.com/watch?v=cup44QvubSs)-Ashan Fernando | [Ai Mama Adare](https://www.youtube.com/watch?v=xjEV8EgLfLY)-Piyath Rajapakse |
 | [Mage Hitha Gawa](https://www.youtube.com/watch?v=j1XrwaqLyeI) - Damith Asanka | [Manamali](https://www.youtube.com/watch?v=PXQcpqKstQE) - Iraj & Infaas |
 | [Oya As Dekata Pem Keruwe](https://www.youtube.com/watch?v=IKdfwauowHM) - Kingsly Peries | [Es Deka Piyana](https://www.youtube.com/watch?v=5_dg0t_Q4jE) - Rookantha Gunathilake |
+| [Mata Dunna Duk Ginna](https://www.youtube.com/watch?v=XpkTpJaBcG4) - Damith Asanka | [Mata Sithanna Ba](https://www.youtube.com/watch?v=KeZfI4XoDB8) - Iraj |
+
