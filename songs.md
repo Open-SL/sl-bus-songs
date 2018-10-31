@@ -22,4 +22,6 @@
 | [Oya As Dekata Pem Keruwe](https://www.youtube.com/watch?v=IKdfwauowHM) - Kingsly Peries | [Es Deka Piyana](https://www.youtube.com/watch?v=5_dg0t_Q4jE) - Rookantha Gunathilake |
 | [Mata Dunna Duk Ginna](https://www.youtube.com/watch?v=XpkTpJaBcG4) - Damith Asanka | [Mata Sithanna Ba](https://www.youtube.com/watch?v=KeZfI4XoDB8) - Iraj |
 | [Wenwee Giyath Perada](https://www.youtube.com/watch?v=HMbU2VkHVxo) - Ruwan Hettiarachchi | [Radhawani](https://www.youtube.com/watch?v=N9Sx1b-lsNI) - Supun Perera |
-
+| [Wen Weela Giyada](https://www.youtube.com/watch?v=XIv7wa3y6Eo) - Ruwan Hettiarachchi  | [Naadagam Geeya](https://www.youtube.com/watch?v=zv2SiwkJTAw) - Ridma Weerawardena |
+| [Ayeth Warak](https://www.youtube.com/watch?v=rr_5oIfJ6FA) - Sandun Perera | [Kuweni](https://www.youtube.com/watch?v=iIm4gcybpsI) - Ridma Weerawardena |
+| [Sudu Rosa Mala Wage](https://www.youtube.com/watch?v=Zml4ThW1Tz4) - Ajith Muthukumarana | [Awasara Natha Mata](https://www.youtube.com/watch?v=sRABikHwwVw) - Milton Mallawarachchi |
