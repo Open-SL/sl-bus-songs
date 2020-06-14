@@ -26,3 +26,11 @@
 | [Wen Weela Giyada](https://www.youtube.com/watch?v=XIv7wa3y6Eo) - Ruwan Hettiarachchi  | [Naadagam Geeya](https://www.youtube.com/watch?v=zv2SiwkJTAw) - Ridma Weerawardena |
 | [Ayeth Warak](https://www.youtube.com/watch?v=rr_5oIfJ6FA) - Sandun Perera | [Kuweni](https://www.youtube.com/watch?v=iIm4gcybpsI) - Ridma Weerawardena |
 | [Sudu Rosa Mala Wage](https://www.youtube.com/watch?v=Zml4ThW1Tz4) - Ajith Muthukumarana | [Awasara Natha Mata](https://www.youtube.com/watch?v=sRABikHwwVw) - Milton Mallawarachchi |
+| [Mathakayan Obe](https://www.youtube.com/watch?v=r0bLO5mWanY) - Chamara Werasinha | [Sithata Danena Ma Lathawul](https://www.youtube.com/watch?v=CUoPOFioGFM) - TM Jayarathna |
+| [Kumudu Liye](https://www.youtube.com/watch?v=WqdpU8xcJS4) - Chamara Werasinha |  |
+| [Athugala Wehera Wandina](https://www.youtube.com/watch?v=r3BSudxnkLE) - Chamara Werasinha |  |
+| [SUDU](https://www.youtube.com/watch?v=FLu5mM0h2z4) - Milinda Sandaruwan |  |
+| [Saaritha](https://www.youtube.com/watch?v=r9MsHppvKjo) - Viraj Perera |  |
+| [Sudu Asu Pita Nagala](https://www.youtube.com/watch?v=Ohs3LMaSH4g) - indrani perera |  |
+| [Sudu Ammiya](https://www.youtube.com/watch?v=osE086leAAk) - Anushka Udana |  |
+| [Mathu Sambandai](https://www.youtube.com/watch?v=JiJmWTAEhHU) - Milinda Sandaruwan |  |
