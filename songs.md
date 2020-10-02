@@ -34,3 +34,4 @@
 | [Sudu Asu Pita Nagala](https://www.youtube.com/watch?v=Ohs3LMaSH4g) - indrani perera |[Batanala](https://www.youtube.com/watch?v=OWojW2mpfbM) -Costa  |
 | [Sudu Ammiya](https://www.youtube.com/watch?v=osE086leAAk) - Anushka Udana | [Machan](https://www.youtube.com/watch?v=DZFaRwzOcg4) -Chinthy  |
 | [Mathu Sambandai](https://www.youtube.com/watch?v=JiJmWTAEhHU) - Milinda Sandaruwan | [Naari](https://www.youtube.com/watch?v=u-SXt28YCWc) -Chinthy  |
+| [Neththara](https://youtu.be/0N6HS0KnK44) - B & S | [Ma mala pasu](https://youtu.be/t3cp7tmv9fs) -W.D. Amaradewa  |
